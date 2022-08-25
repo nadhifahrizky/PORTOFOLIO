@@ -10,3 +10,7 @@
 
 <b> Kelas Inspirasi Malang </b>
 <br> https://www.youtube.com/watch?v=uizF_adBbT8 </br>
+
+<b> FREELANCE </b>
+<br> https://www.youtube.com/watch?v=tyzQnK_Ez98 </br>
+<br> https://www.youtube.com/watch?v=N7skW3mneMo </br>
